@@ -3,8 +3,8 @@
 - 📫 How to reach me -
 
   linkedin - www.linkedin.com/in/anshdadhich \
-  gmail- anshdadhichmm@gmail.com \
-  x (twitter)- https://x.com/AnshDadhichh \
+  gmail - anshdadhichmm@gmail.com \
+  x (twitter) - https://x.com/AnshDadhichh \
   peerlist - https://peerlist.io/anshdadhich 
 
 <!---
