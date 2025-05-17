@@ -5,7 +5,7 @@
   linkedin - www.linkedin.com/in/anshdadhich \
   gmail- anshdadhichmm@gmail.com \
   x - https://x.com/AnshDadhichh \
-  peerlist - https://peerlist.io/anshdadhich \ 
+  peerlist - https://peerlist.io/anshdadhich 
 
 <!---
 anshdadhich/anshdadhich is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
