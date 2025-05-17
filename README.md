@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @anshdadhich
-- 💞️ I’m looking to collaborate on any project
+- 💞️ I’m open to collaborate on any project
 - 📫 How to reach me -
 
   linkedin - www.linkedin.com/in/anshdadhich \
