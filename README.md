@@ -4,7 +4,7 @@
 
   linkedin - www.linkedin.com/in/anshdadhich \
   gmail- anshdadhichmm@gmail.com \
-  x - https://x.com/AnshDadhichh \
+  x (twitter)- https://x.com/AnshDadhichh \
   peerlist - https://peerlist.io/anshdadhich 
 
 <!---
