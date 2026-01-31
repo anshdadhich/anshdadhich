@@ -4,7 +4,7 @@
 
   linkedin - www.linkedin.com/in/anshdadhich \
   gmail - anshdadhichmm@gmail.com \
-  x (twitter) - https://x.com/Rokieee__\
+  x (twitter) - https://x.com/Rokieee__
   peerlist - https://peerlist.io/anshdadhich 
 
 <!---
